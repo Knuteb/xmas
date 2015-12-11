@@ -18,7 +18,7 @@ Knute Betts
 
 >$80 [LG tone pro 900 Lg HBS-900](https://www.amazon.com/dp/B00R9RF0EI/ref=cm_sw_r_cp_awd_OQGAwbZPRMGZ5 "Tone Infinim Wireless Stereo Headset")
 
->$90  [AutoPage 2-Way, 3-Channel Vehicle Security System](https://www.amazon.com/dp/B002VQVZCS/ref=cm_sw_r_cp_awd_s4NAwb6F3SSY3 "Car Alarm/Remote Start - C3-RS6652W")
+>$102  [AutoPage 2-Way, 3-Channel Vehicle Security System](https://www.amazon.com/dp/B002VQVZCS/ref=cm_sw_r_cp_awd_s4NAwb6F3SSY3 "Car Alarm/Remote Start - C3-RS6652W")
 
 >$130 [Dewalt DCB204-2 20V MAX XR Premium Li-Ion Batteries 4.0Ah](https://www.amazon.com/dp/B00BQHOI6S/ref=cm_sw_r_cp_awd_t3GAwb83YGZNP "Dewalt 20v batteries")
 
