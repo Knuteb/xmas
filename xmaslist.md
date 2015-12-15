@@ -5,9 +5,6 @@ Knute Betts
 
 ###**In some order of priority...**
 
-
->$90 [Drivers side rear axle](http://www.oreillyauto.com/site/c/detail/IDD0/SB8048/01424.oap?year=2001&make=Subaru&model=Outback&vi=5015952&ck=Search_01424_5015952_2513&pt=01424&ppt=C0362 "Rear Axle")
-
 >$65 each, need 2 [Rear struts KYB GR-2 Gas 341276 Shock Absorber](https://www.amazon.com/dp/B0071B7EQY/ref=cm_sw_r_cp_awd_BbHAwbCRYRNMN "New rear Struts")
 
 >$90 [Samsung Electronics 840 EVO-Series 2.5-Inch SATA](http://amzn.com/B00E3W1726 "Laptop Harddrive SSD")
